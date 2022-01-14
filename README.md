@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SatenKnight
-- 👀 I’m interested in techonology, videogames, 
+- 👀 I’m interested in techonology, videogames,music, crypo, computers, programming amd other geek stuff
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate with anyone thats is willing to help me improve myself.
 
